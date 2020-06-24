@@ -15,3 +15,4 @@
 ### 史前生命
 
 [史前生命的详细进化过程](https://www.cnblogs.com/hx-web/p/13163228.html)
+[《史前生命》杂记](https://www.cnblogs.com/hx-web/p/10179484.html)
