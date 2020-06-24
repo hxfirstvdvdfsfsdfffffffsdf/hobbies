@@ -1,5 +1,5 @@
 # hobbies
-个人兴趣、爱好
+24孔复音口琴、地理、文学
 ## 口琴
 
 ### river flows in you（你的心河）
